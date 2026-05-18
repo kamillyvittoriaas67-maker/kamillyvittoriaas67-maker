@@ -42,7 +42,7 @@ Meu objetivo é crescer profissionalmente na área de tecnologia, adquirir exper
 
 📧 Email: kamillyvittoriaas67@gmail.com  
 💼 LinkedIn: https://www.linkedin.com/in/kamilly-vitória-7ab3b6382  
-🐱 GitHub: github.com/seugithub
+
 
 ---
 
